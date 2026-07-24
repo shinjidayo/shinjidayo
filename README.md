@@ -1,6 +1,4 @@
-<p align="center">
 https://github.com/user-attachments/assets/fa127280-4c55-47f2-be6a-7e6e66aad0d3
-</p>
 
 
 <p align="center">
