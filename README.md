@@ -17,4 +17,3 @@ please check my linktree for more Ok im also very shy
 <p align="center">
 i was awarded honorary pt beta in 2024 
 </p>
-{{User Shinji}}
