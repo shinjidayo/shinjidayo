@@ -14,6 +14,5 @@ please check my linktree for more Ok im also very shy
 <img width="300" height="206" alt="_clear 📺 (1)" src="https://github.com/user-attachments/assets/ffc343b0-5179-49a8-8bef-2728b211c872" />
 </p>
 
-<p align="center">
 i was awarded honorary pt beta in 2024 
-</p>
+
