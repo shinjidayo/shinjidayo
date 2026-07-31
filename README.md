@@ -1,7 +1,9 @@
 <p align="center">
 <img width="1812" height="1344" alt="57149" src="https://github.com/user-attachments/assets/af277918-3bc2-41f1-9ac0-50126a5eae46" />
 </p>
-
+<p align="center">
+art by ssssenferda
+</p>
 
 
 <p align="center">
