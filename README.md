@@ -4,4 +4,5 @@
 
 <p align="center">
 i was awarded honorary pt beta in 2024 
+  https://shinjidayo.atabook.org/
 </p>
