@@ -6,3 +6,6 @@
 i was awarded honorary pt beta in 2024 
   https://shinjidayo.atabook.org/
 </p>
+<p align="center">
+<img width="1024" height="200" alt="57882" src="https://github.com/user-attachments/assets/7cb8034e-212d-4095-b964-8270d1db39c9" />
+</p>
